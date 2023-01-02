@@ -1,1 +1,0 @@
-Alphatech read me 
